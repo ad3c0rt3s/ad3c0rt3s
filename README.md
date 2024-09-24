@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ad3c0rt3s.
+- 👀 I’m interested in software development and business.
+- 🌱 I’m currently learning new ways to implement software to business and creating my own digital business and any digital idea.
+- 💞️ I’m looking to collaborate on difficult tasks.
+- 📫 How to reach me via email: futurescapehub@gmail.com
+- 😄 Pronouns: He/Him.
+- ⚡ Fun fact: I love smart people.
